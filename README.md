@@ -1,1 +1,0 @@
-# the-sozawe-cookbook-of-racist-murder
